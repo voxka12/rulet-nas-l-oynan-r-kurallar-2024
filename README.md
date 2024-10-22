@@ -1,0 +1,1 @@
+# rulet-nas-l-oynan-r-kurallar-2024
